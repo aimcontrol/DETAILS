@@ -282,15 +282,15 @@ Dr Capt Nguyen Te Nhan / G.D
 
 Agriculture - Industry - Marine Control Survey Inspection Group
 -------------------------------------------------------
-Tel   : +84-8-3832-7204
-Fax  : +84-8-3832-8393
+Tel   : +84-28-3832-7204
+Fax  : +84-28-3832-8393
 Cell  : +84903615612 
 E-mail: ceo@aimcontrolgroup.com; aimcontrol@aimcontrolgroup.com; 
 qualitycontrol@aimcontrolgroup.com, inspection@aimcontrolgroup.com,
 survey@aimcontrolgroup.com
 MSN: aimcontrol@hotmail.com
 Skype: aimcontrol
-http://www.aimcontrolgroup.com
+https://www.aimcontrolgroup.com
 http://www.inspection.vn
 http://www.kiemdinh.org
 http://www.giamdinh.org 
@@ -453,20 +453,67 @@ Africa
 Algeria Angola Benin Botswana Burkina Faso Burundi Cameroon Cape Verde C. African Rep. Chad Comoros Congo Cote d'Ivoire Djibouti Egypt Equatorial Guinea Eritrea Ethiopia Gabon Gambia Ghana Guinea Guinea-Bissau Kenya Lesotho Liberia Libya Madagascar Malawi Mali Mauritania Mauritius Mayotte Morocco Mozambique Namibia Niger Nigeria Rwanda Sahrawi Sao Tome and Principe Senegal Seychelles Sierra Leone Somalia South Africa Sudan Swaziland Tanzania.
 Other Global Countries
 
-Contacted us when you orders us!
+https://www.aimcontrolgroup.com/en/cargo-inspection-/-cargo-survey.html
 
-Kind regards,
+https://aimcontrolgroup.com/en/survey-inspection-services.html
 
-Dr Capt. Nguyen Te Nhan / G.D
+https://aimcontrolgroup.com/en/damage-survey-services.html
 
-Agriculture - Industry - Marine Survey & Inspection Group
--------------------------------------------------------
-Tel     : +84-8-3832-7204
-Fax    :  +84-8-3832-8393
-Cell.   :  +84903615612 
-E-mail:  aimcontrol@aimcontrolgroup.com
-            inspection@aimcontrolgroup.com
-MSN  :  aimcontrol@hotmail.com
-Skype:  aimcontrol
-http://www.aimcontrolgroup.com
-------------------------------------------------------
+https://aimcontrolgroup.com/en/damaged-marine-cargo-survey.html
+
+https://aimcontrolgroup.com/en/insurance-survey-services-for-insurance-companies.html
+
+https://aimcontrolgroup.com/en/heavy-lift-project-cargo-loading-unloading-supervision-inspection.html
+
+https://aimcontrolgroup.com/en/inspection-service.html
+
+https://aimcontrolgroup.com/en/marine-survey.html
+
+https://aimcontrolgroup.com/en/marine-cargo-survey-and-consultancy.html
+
+https://aimcontrolgroup.com/en/marine-survey-/-offshore-inspection-services.html
+
+https://aimcontrolgroup.com/en/agriculture-goods-control-/-commodities-inspection-services.html
+
+https://aimcontrolgroup.com/en/industry-inspection-services.html
+
+https://aimcontrolgroup.com/en/others.html
+
+https://aimcontrolgroup.com/en/survey-inspection-services.html
+
+https://aimcontrolgroup.com/en/the-inspection-company.html
+
+https://aimcontrolgroup.com/en/uwhc-and-diving-inspection.html
+
+https://aimcontrolgroup.com/en/claim-investigation.html
+
+https://aimcontrolgroup.com/en/charterer-survey.html
+
+https://aimcontrolgroup.com/en/quality-assurance-and-quality-control-inspection-services.html
+
+https://aimcontrolgroup.com/en/tallying-and-surveying-services.html
+
+https://aimcontrolgroup.com/en/commodity-inspection.html
+
+https://aimcontrolgroup.com/en/marine-warranty-survey-surveyor.html
+
+https://aimcontrolgroup.com/en/vendor-inspection.html
+Best Regards
+Dr Capt. Nguyen Te Nhan / G.D 
+Agriculture Industry Marine Control Inspection Group of Companies®
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+E-mail:   CEO@aimcontrolgroup.com
+              survey@aimcontrolgroup.com
+              inspection@aimcontrolgroup.com
+              diving@aimcontrolgroup.com
+              qualitycontrol@aimcontrolgroup.com
+              tallying@aimcontrolgroup.com
+ 
+MSN   :  aimcontrol@hotmail.com 
+
+http://www.inspectioncertificate.org
+https://www.aimcontrolgroup.com 
+
+Tally Survey Inspection Certification Investigation Expertise Witness 
+Diving Underwater Clean Warranty & Approval Asia, Global. 
+Surveyors I Inspectors I Consultant I Tally-men I Divers I Experts
